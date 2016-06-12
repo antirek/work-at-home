@@ -17,3 +17,10 @@
 ## Мебель
 
 http://nsk.lubidom.ru/catalog/kompjuternye-stoly/stol-pk-beysik-kombo/kompyuternyy-stol-beysik-kombo-seryy-v-razlozhennom-vide/
+
+
+## картинки для вдохновения
+
+https://coolhouses.ru/arhitektura/33-shikarnyih-varianta-dizayna-domashnego-ofisa.html
+
+http://www.elenaeller.com/2015/01/idealnyj-domashnij-ofis-30-idej-po-obustrojstvu-rabochego-mesta.html
